@@ -8,4 +8,3 @@
 <img style="width:33%;" src="gfjgfjgf copy.png">
 <br>
 <a href="https://www.instagram.com/utossperp1/?hl=en"><img src="images.png"></a>
-ages.png"></a>
