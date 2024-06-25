@@ -8,5 +8,5 @@
 <img style="width:33%;" src="gfjgfjgf copy.png">
 <br>
 <a href="https://www.instagram.com/utossperp1/?hl=en"><img style="width:10%;" src="images.png"></a><br>
-<a href="https://www.instagram.com/utossperp1/?hl=en"><img style="width:10%;" src="62b2265e038aad4d3ed7ca4b.png"></a><br>
+<a href="https://discord.com/invite/cj7D7y7x"><img style="width:10%;" src="62b2265e038aad4d3ed7ca4b.png"></a><br>
 <a href="https://www.youtube.com/@Utossperp"><img style="width:9%;" src="youtube-logo-youtube-logo-transparent-youtube-icon-transparent-free-free-png.webp"></a>
